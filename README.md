@@ -20,6 +20,7 @@
 
 
 
+![SQL-2](https://user-images.githubusercontent.com/92247967/204124301-a66eb5a9-27c8-4c23-b011-aeb684561276.jpg)
 
 
 
